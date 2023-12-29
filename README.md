@@ -2,7 +2,7 @@
   
 ### Education
 Korea Advanced Institute of Science & Technology(KAIST)  
-* Master of Entrepreneurship & Innovation 
+* Master of Entrepreneurship & Innovation -- currently on leave of absence
 
 San Jose State University  
 * B.S. in Applied Mathematic(Statistics Conc)  
